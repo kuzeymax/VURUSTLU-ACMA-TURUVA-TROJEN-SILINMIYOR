@@ -1,1 +1,0 @@
-# STARA-TEBER
